@@ -1,4 +1,3 @@
-# Zoomey Child Safety & CSAE Prevention Standards
 
 **Effective Date:** August 2025
 
